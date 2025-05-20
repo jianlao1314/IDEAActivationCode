@@ -2,6 +2,7 @@
 
 ## 1.下载安装IntelliJ IDEA
 
+- IDEA 破解，IDEA破解，IDEA激活码，IDEA 激活码，IDEA 注册码，IDEA注册码，IDEA安装教程，PyCharm 破解，PyCharm破解，PyCharm激活码，PyCharm 激活码，PyCharm 注册码，PyCharm注册码，PyCharm安装教程
 - 教程支持多版本包括2025最新版IntelliJ IDEA专业版激活，接下来演示下idea 2025 的激活详细步骤
 - 建议大家直接登录[官网下载最新版本](https://www.jetbrains.com.cn/idea/download)，下载2025年的最新版本
 
