@@ -1,13 +1,13 @@
-# 【最新2025】IDEA2025.1激活码 永久激活+汉化教程，附激活码+激活插件
+# 【最新2026】IDEA2026激活码 永久激活+汉化教程，附激活码+激活插件
 
 ## 最新idea2025激活码图文使用教程
-intellj idea注册码,idea注册码,idea注册码2025,idea注册码2024,idea注册机,idea注册码永久,idea注册码在线生成,idea注册码失效,idea破解码,idea破解码2025,idea破解码2024,idea破解码失效,idea破解插件,idea激活码,idea激活码2025,idea激活码2024,idea激活码最新,idea激活码永久,idea激活码失效
+intellj idea注册码,idea注册码,idea注册码2026,idea注册码2025,idea注册码2024,idea注册机,idea注册码永久,idea注册码在线生成,idea注册码失效,idea破解码,idea破解码2026,idea破解码2025,idea破解码2024,idea破解码失效,idea破解插件,idea激活码,idea激活码2026,idea激活码2025,idea激活码2024,idea激活码最新,idea激活码永久,idea激活码失效
 
 ## 1.下载安装IntelliJ IDEA
 
 - IDEA 破解，IDEA破解，IDEA激活码，IDEA 激活码，IDEA 注册码，IDEA注册码，IDEA安装教程，PyCharm 破解，PyCharm破解，PyCharm激活码，PyCharm 激活码，PyCharm 注册码，PyCharm注册码，PyCharm安装教程
-- 教程支持多版本包括2025最新版IntelliJ IDEA专业版激活，接下来演示下idea 2025 的激活详细步骤
-- 建议大家直接登录[官网下载最新版本](https://www.jetbrains.com.cn/idea/download)，下载2025年的最新版本
+- 教程支持多版本包括2026最新版IntelliJ IDEA专业版激活，接下来演示下idea 2025 的激活详细步骤
+- 建议大家直接登录[官网下载最新版本](https://www.jetbrains.com.cn/idea/download)，下载2026年的最新版本
 
 ![image](https://gitee.com/jianlao888/ideaactivation-code/raw/master/img/idea0.png "最新版本和时间")
 
